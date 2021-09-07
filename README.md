@@ -1,1 +1,0 @@
-# ir-sk.github.io
